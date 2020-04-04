@@ -7,3 +7,5 @@ I'm Carla, trying to learn some about Science Computer on time's of quarantine m
 Once a day I practice a trainning in home about 40 mins to keep in health.
 
 Everyday I get time to prepare breakfast, lunch and dineer. Always trying to do nutritive foods.
+
+Keeping yourself safe at home.
